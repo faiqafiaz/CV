@@ -1,4 +1,4 @@
-# SOHA SARWAR
+# Syeda Faiqa Fiaz
 
 +92 3087283176 \| s.faiqa.fiaz@gmail.com \| Lahore, Pakistan
 
